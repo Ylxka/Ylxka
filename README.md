@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Ylxka
-- 👀 I’m interested in kids
-- 🌱 I’m currently learning how to rizz kids
+- 👀 I’m interested in packett
+- 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
-- 😄 Pronouns: he/him/it/she/her/ki/ds
+- 😄 Pronouns: pack/ett
 - ⚡ Fun fact: I love packett
 
 <!---
